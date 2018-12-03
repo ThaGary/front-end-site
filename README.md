@@ -1,4 +1,4 @@
-# At minimum
+# GALVANIZE SUPER STUDENTS
 
 * G102 Super Students
 
